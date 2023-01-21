@@ -1,7 +1,7 @@
 🔥 Instagram Auto Report (By TroyDen) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 12.01.2023
+╭━━╴♻️ Upgrade 21.01.2023
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
