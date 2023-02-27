@@ -1,7 +1,7 @@
 🔥 Instagram Auto Report (By SniperSpy) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 22.02.2023
+╭━━╴♻️ Upgrade 27.02.2023
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
